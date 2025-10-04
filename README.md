@@ -6,19 +6,19 @@
 
 | [![@TG最强搜索机器人](https://i.imgur.com/uTMZCDf.png)<br>@TG最强搜索机器人](https://t.me/sosoo?start=a_6294881820) | [![全网最低价代开电报会员/Telegram 会员代开三个月/ 半年/ 一年/代开会员/电报会员/代充会员/电报会员/Telegram会员代开/Telegram代开会员](https://i.imgur.com/XTKEnhQ.png)<br>全网最低价代开电报会员](http://shop.tg10000.com)  | [![@极搜JiSo](https://i.imgur.com/we9lyse.jpeg)<br>@极搜JiSo](https://t.me/jiso?start=a_6294881820) |
 |:---:|:---:|:---:|
-|[![@极搜JiSou](https://i.imgur.com/1VoAGvh.png)<br>@极搜JiSou](https://t.me/jisou2bot?start=a_7352210715) |  [![@频道导航](https://i.imgur.com/31YFV0f.png)<br>@频道导航](https://telegramnav.github.io/) |[![@i快搜](https://i.imgur.com/CsCtOBH.png)<br>@i快搜](https://t.me/CJSY?start=7202424896)|
+|[![@极搜JiSou](https://i.imgur.com/1VoAGvh.png)<br>@极搜JiSou](https://t.me/jisou2bot?start=a_7352210715) |  [![@频道导航](https://i.imgur.com/31YFV0f.png)<br>@频道导航](https://telegramnav.github.io/) |[![@i快搜](https://i.imgur.com/CsCtOBH.png)<br>@i快搜](https://t.me/CJSY?start=8116768878)|
 
 ### 搜索机器人
 
 | 名字       | 链接                                                                 | 功能描述                                   |
 | :--------- | :------------------------------------------------------------------: | :---------------------------------------- |
-| 极搜JiSo   | [@jiso](https://t.me/jiso?start=a_7202424896)                       | 发送词语帮你找到有趣的群、频道、视频、音乐、电影、新闻 |
-| SOSO机器人  | [@soso](https://t.me/sosoo?start=a_7202424896)                     | 发送词语发送关键词来寻找群组、频道或视频           |
-| 超级索引  | [@CJSY](https://t.me/CJSY?start=7202424896)                  | 发送词语即可搜索关联群组与频道资源，老牌搜索机器人超级索引邀请好友，参与五级拉新裂变赢USDT！新人使用直接领取1.88U！！(完成1次有效搜索) 👉[官方搜索群](https://t.me/+kt8DCh74ZmA0ZTc9)，搜索不留任何痕迹，放心搜索       |
-| 极搜JiSou  |  [@jisou](https://t.me/jisou?start=a_7202424896)               | 发送词语帮你找到有趣的群、频道、视频、音乐、电影、新闻 |
-| 快搜  | [@kuai](https://t.me/kuai?start=ad_7202424896)             | 发送词语帮你找到有趣的群、频道、视频、音乐、电影、新闻 |
-| Super搜索       | [@Super](https://t.me/Super?start=ref-7202424896)                | 查找群组、频道、影视、音乐或机器人         |
-| 神马搜索(签到有收益)   | [@smss](https://t.me/smss?start=spread_7202424896)                  | 发送词语即可搜索关联群组与频道资源         |
+| 极搜JiSo   | [@jiso](https://t.me/jiso?start=a_8116768878)                       | 发送词语帮你找到有趣的群、频道、视频、音乐、电影、新闻 |
+| SOSO机器人  | [@soso](https://t.me/sosoo?start=a_8116768878)                     | 发送词语发送关键词来寻找群组、频道或视频           |
+| 超级索引  | [@CJSY](https://t.me/CJSY?start=8116768878)                  | 发送词语即可搜索关联群组与频道资源，老牌搜索机器人超级索引邀请好友，参与五级拉新裂变赢USDT！新人使用直接领取1.88U！！(完成1次有效搜索) 👉[官方搜索群](https://t.me/+kt8DCh74ZmA0ZTc9)，搜索不留任何痕迹，放心搜索       |
+| 极搜JiSou  |  [@jisou](https://t.me/jisou?start=a_8116768878)               | 发送词语帮你找到有趣的群、频道、视频、音乐、电影、新闻 |
+| 快搜  | [@kuai](https://t.me/kuai?start=ad_8116768878)             | 发送词语帮你找到有趣的群、频道、视频、音乐、电影、新闻 |
+| Super搜索       | [@Super](https://t.me/Super?start=ref-8116768878)                | 查找群组、频道、影视、音乐或机器人         |
+| 神马搜索(签到有收益)   | [@smss](https://t.me/smss?start=spread_8116768878)                  | 发送词语即可搜索关联群组与频道资源         |
 | 虚拟货币投资学习   | [awesome-crypto](https://github.com/itgoyo/awesome-crypto)          | 💰财务自由必备币圈导航，没有钱包的建议先申请一个交易所钱包、个人比较推荐[币安](https://accounts.binance.com/zh-CN/register?ref=896983517)、[欧易](https://accounts.binance.com/zh-CN/register?ref=896983517)，币安最近Alpha刷积分活动，空投每个月基本都可以领上万块，感兴趣可以看看[视频教程](https://www.youtube.com/results?search_query=%E5%B8%81%E5%AE%89alpha)   |
 | 电报哥的网络店铺   | [https://shop.tg10000.com](https://shop.tg10000.com)            | 一些和电报有关的产品服务，低价代充电报会员3月/109、6月/149、12月/259  |
 | 💎电报会员机器人   | [@kttgvip_bot](https://t.me/kttgvip_bot)            | 低价自助开通电报会员机器人，支持USDT、微信、支付宝等支付，1秒克隆同款机器人   |
